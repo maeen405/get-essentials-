@@ -1,1 +1,12 @@
 # get-essentials-
+deplyment notes
+staging notes asldkfjlsdjf
+fdslkfjlaskfj
+flkajslfkjasdlkf
+sdfjaslfkjsadlkfj\
+flkjsdflkajsflkjsda
+kjflsdjflkasdfiue
+kldjfkldjfasf9e4
+dskfjsdlkfjsdafie
+dsfjsdlkfjsda-0p]ekjrew
+dsfjsdlkfjsadl;fkaioje44rlkmeci9jeimfew
